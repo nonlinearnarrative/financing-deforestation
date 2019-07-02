@@ -1,2 +1,0 @@
-# financing-deforestation
-Financing Deforestation
